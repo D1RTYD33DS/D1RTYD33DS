@@ -1,5 +1,5 @@
     Selective-sharing Joseph Joestar Yume
-<p align="center">
-  <img width="1000" height="900" src="https://file.garden/ai21iEd-UwewzJwn/Untitled286_20261030001944.png">
+<p align="left">
+  <img width="1000" height="900" src="https://file.garden/ai21iEd-UwewzJwn/Untitled313_20261115032431.png">
 </p>
               
