@@ -4,5 +4,5 @@
 </p>
               
 <p align="left">
-</p>text= Follow me im cool asf >
+</p>Follow me im cool asf 
   
