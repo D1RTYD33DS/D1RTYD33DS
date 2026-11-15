@@ -3,5 +3,5 @@
 </a>
               
 <p align="left">
-</p>Follow me im cool asf 
+</p>I like Funny valentine. Follow me for W funny valentine and Joseph Joestar shady facts 
   
